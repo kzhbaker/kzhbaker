@@ -7,3 +7,5 @@ Hi! I'm Katie from Brooklyn. Interests include:
 - 💃🏽  Broadway shows
 - 🌱  Plants!
 - 🌺  Hawai'i: It's where I grew up and where my family still lives
+
+![Samberg_highfive](https://user-images.githubusercontent.com/83845646/122441757-dd871580-cf6b-11eb-8103-294f7fcf67d5.jpeg)
