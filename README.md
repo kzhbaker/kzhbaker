@@ -1,4 +1,12 @@
-### Hi there 👋
+### Hey there 👋
+
+Hi! I'm Katie. Interests include:
+
+- 🐶 My 14+-year-old long-haired dachshund, Oscar
+- 💃🏽 Broadway
+- 🗽 NYC: History, walking around, vistas
+- 🌱 Plants!
+- 🌺 Hawaii: It's where I grew up and where my family still lives.
 
 <!--
 **kzhbaker/kzhbaker** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
